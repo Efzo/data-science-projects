@@ -61,9 +61,9 @@ This portfolio serves as:
 Feel free to connect with me:
 
 - 📧 Email: efzobeats@gmail.com  
-- 🔗 LinkedIn: [https://www.linkedin.com/in/efosaojomo](https://www.linkedin.com/in/efosaojomo)  
-- 🎵 Music & Creativity: [https://www.efzo.com](https://www.efzo.com)  
-- 💼 GitHub: [https://github.com/eeojomo](https://github.com/eeojomo)
+- 🔗 LinkedIn: ((https://www.linkedin.com/in/efosa-ojomo-4882a015a/))  
+- 🎵 Music & Creativity: [(https://unitedmasters.com/a/efzo)](https://www.instagram.com/efzo/)  
+- 💼 GitHub: [https://github.com/eeojomo](https://github.com/efzo)
 
 ---
 
